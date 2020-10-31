@@ -1,0 +1,2 @@
+first soak the pohay(plural of poha) in water, not so long or it will be shattered .Leave them to drip the water off .Until then put some oil in a kadhai and let heat bit then add the chillies, cumin seeds, and crushed  ginger in the oil and at the last put the peanuts and the pohay it it and stir well until homogeneous and then close it and 
+leave it for 5-7 minutes serve it with a dash of lemon
